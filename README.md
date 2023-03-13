@@ -14,6 +14,6 @@
 3. I'm an avid hiker and outdoor enthusiast.
 
 If you wish to contact me with any comments or feedback please reach out!
-![Linkedin](www.linkedin.com/in/charlotte-ridler-413972269) / ![email](charlotte.ridler32@gmail.com)
+[Linkedin](www.linkedin.com/in/charlotte-ridler-413972269) / [email](charlotte.ridler32@gmail.com)
 
 Thank you! 
